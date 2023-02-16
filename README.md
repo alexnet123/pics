@@ -21,3 +21,5 @@
 ![Снимок экрана от 2023-02-15 23-58-35](https://user-images.githubusercontent.com/75438030/219158138-bbd05273-27cd-4495-98c9-0a5d87138f3d.png)
 
 ![Снимок экрана от 2023-02-16 00-22-27](https://user-images.githubusercontent.com/75438030/219169866-8b92ee60-8af9-436f-84c4-a7cfd868a984.png)
+
+![Снимок экрана от 2023-02-16 13-26-28](https://user-images.githubusercontent.com/75438030/219339307-414fc6fa-9664-45cb-ad0a-c5cb60e760a2.png)
