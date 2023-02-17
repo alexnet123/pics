@@ -29,3 +29,5 @@
 ![Снимок экрана от 2023-02-16 15-51-57](https://user-images.githubusercontent.com/75438030/219381038-4f5b04b5-073a-4db6-a06b-ea759b2a0f8e.png)
 
 ![Снимок экрана от 2023-02-16 17-02-02](https://user-images.githubusercontent.com/75438030/219385628-b0a17748-3bd2-4e75-81cb-9c6fefc64978.png)
+
+![docker_compose-624x250](https://user-images.githubusercontent.com/75438030/219676680-6ce72d26-54cf-4878-a30e-2f47f61a89e5.png)
