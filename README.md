@@ -44,3 +44,5 @@
 
 ![Снимок экрана от 2023-02-25 11-28-22](https://user-images.githubusercontent.com/75438030/221347287-d9db2b31-071f-403e-be17-33c2c364b184.png)
 
+![Снимок экрана от 2023-02-28 00-06-17](https://user-images.githubusercontent.com/75438030/221686684-f5a96933-c509-4e61-84a8-ad9ad2515408.png)
+
