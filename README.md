@@ -48,3 +48,12 @@
 
 ![Снимок экрана от 2023-04-04 17-02-26](https://user-images.githubusercontent.com/75438030/229772502-1c73479f-28ee-4d11-87e0-2a5a9281d6c4.png)
 
+
+
+![Снимок экрана от 2023-04-04 17-03-59](https://user-images.githubusercontent.com/75438030/229772746-ab12c9a3-e46e-48f2-acd4-b3bc36d74e4c.png)
+
+
+
+
+
+
