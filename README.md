@@ -67,15 +67,9 @@
 ![Снимок экрана от 2023-04-11 03-38-02](https://user-images.githubusercontent.com/75438030/231004272-648a8e29-9c04-4f04-9a6c-b7de8f334f13.png)
 ![Снимок экрана от 2023-04-11 03-38-09](https://user-images.githubusercontent.com/75438030/231004284-54fa158a-fd2b-4acb-a51c-4843eb439dcc.png)
 ![Снимок экрана от 2023-04-11 03-38-17](https://user-images.githubusercontent.com/75438030/231004295-94e5b633-e7bc-42ad-998b-cebefc3bd42c.png)
-
-
 ![Снимок экрана от 2023-04-11 04-36-11](https://user-images.githubusercontent.com/75438030/231011959-a49cc0ea-77d3-47e2-a154-aaa765bf1566.png)
-
-
 ![Снимок экрана от 2023-04-11 06-00-27](https://user-images.githubusercontent.com/75438030/231021676-ee52017c-ceeb-4700-acb9-9edf2ca55c18.png)
-
-
-
+![Снимок экрана от 2023-05-05 16-12-49](https://user-images.githubusercontent.com/75438030/236467082-6a4b3e51-51d6-48bc-a85d-f5f1e8d59afa.png)
 
 
 
