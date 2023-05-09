@@ -72,5 +72,21 @@
 ![Снимок экрана от 2023-05-05 16-12-49](https://user-images.githubusercontent.com/75438030/236467082-6a4b3e51-51d6-48bc-a85d-f5f1e8d59afa.png)
 ![Снимок экрана от 2023-05-06 20-28-23](https://user-images.githubusercontent.com/75438030/236638583-5f20471f-a85b-421f-8819-9b7db2cecea0.png)
 
-![Снимок экрана от 2023-05-09 20-55-13](https://github.com/alexnet123/pics/assets/75438030/325ae71b-3183-419a-8e18-69cc2c857430)
+
+
+
+
+![Снимок экрана от 2023-05-09 20-55-13](https://github.com/alexnet123/pics/assets/75438030/000e0d40-b857-4eca-99b4-38fded47a43b)
+
+
+
+
+
+
+
+
+
+
+
+
 
